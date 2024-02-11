@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @R1jul //
+- 👋 Hi, I’m @Rijul //
 - 👀 I’m interested in things related to IT Hub//
 - 🌱 I’m currently in 2nd year//
 - 📫 How to reach me on gmail via rijul01b@gmail.com // 
